@@ -1,0 +1,2 @@
+# NOKIA-8800-ARTE-100-CH-NH-H-NG---CH-T-L-NG
+NOKIA 8800 ARTE 100% CHÍNH HÃNG - CHẤT LƯỢNG Hoàng Cường trân trọng giới thiệu đến quý khách hàng sản phẩm diện thoại Nokia 8800 Arte nguyên bản chính hãng đảm bảo chất lượng.  Đến với Hoàng Cường bạn sẽ không phải lo lắng về chất lượng sản phẩm Nokia 8800 đồng thời nhận được những ưu đãi bất ngờ!!! http://cuong.vn/nokia-8800-arte.html http://cuong.vn/nokia-8800.html #Nokia8800 #điệnthoại8800chínhhãng 
